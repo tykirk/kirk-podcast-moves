@@ -55,13 +55,28 @@ There is not narrator in the story, so the tale is constructed most substantiall
 
 Characters in Homecoming come attached with personalities with extra flavor. When you hear characters from the show converse, they don't speak as if they are real people. They speak like actors, and its clear that despite the "real world" setting of the story, that these characters are merely archetypes of common human identities.
 
-4:24
-7:55
-8:50
-14:35
+- 4:24
+- 7:55
+- 8:50
+- 14:35
 
 **_Music and ambient tones _**
 
 These are critical to the podcast for Homecoming. The setting in which characters reside matters a lot to the story, and the only way to get the point across the characters are "in a diner" or "outside near a park" is by clearly making noises or playing music that indicate the presence of a diner/park.
 
-2:57
+- 2:57
+- 7:55
+- 9:05
+- 11:09
+- 13:06
+
+**_Transition tones_**
+
+The lack of a directed narrator for the show provides another initial barrier. Homecoming has not official way to indicate when it moves on to other topics, and when it remains where it is. The podcast mends this issue by introducing transitional tones to the mix. These tones and sounds change as the setting of the podcast changes. For instance, it displays how the focus shifts from the present, to a memory of a character.
+
+- 0:53
+- 4:08
+- 13:06
+- 15:25
+- 15:48
+- 15:37
